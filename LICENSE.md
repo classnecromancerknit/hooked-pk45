@@ -1,4 +1,4 @@
-#  
+#  hooked Script updated offers the most advanced hooked Script, with instant win and no cooldown. Perfect for dominating any match.
 
 
 
